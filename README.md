@@ -1,6 +1,25 @@
-ID *** Mr.Cryptobeast.*+=0
+ID *** Mr.Cryptobeast.*+=#=LOCKED=TIME=ROHAN=#=#=#=NAHOR=EXMAPLEBEMADEOFYOU=EMIT=DEKCOL=#=+*.tsaebotpyrC.rM *** DI
 Rohan Martin Kells Creator of *+=0.worldwideweb.digital
 0=+*.tsaebotpyrC.rM *** DI
+=DI
+ID ***+*
+0xb339559c83Eb3A85d67DEd98d4Be2d59ba99295c
+= Mr. Crypto Beast = DEFI = SOON = ROHAN = NAHOR
+#
+ROHAN = NAHOR = NOOS = IFED = tsaeB otpyrC .rM =
+
+c59299ab95d2eB4d89dED76d58A3bE38c955933bx0
+
+*+*** DI
+
+ID= ***Mr.Cryptobeast. *+=1
+
+ID *** Mr.Cryptobeast.*+=0
+
+latigid.bewediwdlrow.0=+* fo rotaerC slleK nitraM nahoR
+
+0=+*.tsaebotpyrC.rM *** DI
+UP+=*
 
 HIGHEST SKY LIMIT TRANSCEND >codeL2<WWW . * + LETMEEXPLAIN + * . WWW<2Ledoc> DNECSNART TIMIL YKS TSEHGIH
 HIGHEST SKY LIMIT TRANSCEND >codeL2<WWW . * + NIALPXEEMTEL + * . WWW<2Ledoc> DNECSNART TIMIL YKS TSEHGIH
